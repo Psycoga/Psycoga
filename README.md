@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 ¡Hola! Soy David, tengo 22 años y soy un apasionado de la informática desde que tengo uso de razón. Actualmente, estoy cursando un máster en Ciberseguridad para convertir mi pasión en una carrera profesional sólida. 🚀<br><br>He disfrutado aprendiendo y explorando todo lo relacionado con la tecnología, encontré mi verdadera vocación en proteger sistemas y datos. Me entusiasma el desafío de resolver problemas complejos y aportar soluciones seguras en un mundo cada vez más digitalizado.<br><br>💡 Siempre estoy aprendiendo, experimentando y buscando nuevas maneras de crecer en este campo. Si compartes esta pasión, ¡estoy abierto a colaborar o compartir conocimientos! 🌐
+👋 ¡Hola! Soy David, tengo 23 años y soy un apasionado de la informática desde que tengo uso de razón. Actualmente, estoy cursando un máster en Ciberseguridad para convertir mi pasión en una carrera profesional sólida. 🚀<br><br>He disfrutado aprendiendo y explorando todo lo relacionado con la tecnología, encontré mi verdadera vocación en proteger sistemas y datos. Me entusiasma el desafío de resolver problemas complejos y aportar soluciones seguras en un mundo cada vez más digitalizado.<br><br>💡 Siempre estoy aprendiendo, experimentando y buscando nuevas maneras de crecer en este campo. Si compartes esta pasión, ¡estoy abierto a colaborar o compartir conocimientos! 🌐
 
 
 ## 🌐 Socials:
